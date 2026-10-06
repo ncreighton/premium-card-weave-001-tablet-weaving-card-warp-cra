@@ -1,0 +1,2 @@
+# premium-card-weave-001-tablet-weaving-card-warp-cra
+Stop losing track of your card setups and pattern drafts across sticky notes and sketchbooks—this Notion lab turns your weaving chaos into a structured, searchable studio.  The Tablet Weaving &amp; Card Warp Craft Lab centralizes every project, pattern draft, thread inventory, and card configuration in one digital workspace. It eliminates the headache
